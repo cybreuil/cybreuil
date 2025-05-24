@@ -1,4 +1,4 @@
-_Beauty will save the world._  
+_Beauty will save the world_  
 
 Ping me for projects
 
