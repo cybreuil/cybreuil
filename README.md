@@ -1,5 +1,5 @@
 _Beauty will save the world._  
-Ping me for projects 
+Ping me for projects
 __Deo gratias__
 
 ---
